@@ -1,0 +1,2 @@
+# birlik_two_index_mobile
+birlik_two_index_mobile
